@@ -1,7 +1,6 @@
 Практика 11 
 Абдуллоев Наимжон Насимович ЭФБО 02-22
 
-
-
-![image3](https://github.com/user-attachments/assets/33b24104-5c6a-4c6a-825a-a6b5d11cf70e)
-![image5](https://github.com/user-attachments/assets/03eca25d-2adf-424d-9cae-79bfd3adff25)
+![image5](https://github.com/user-attachments/assets/7c0ffecd-128e-48d1-adfd-181901838494)
+![image3](https://github.com/user-attachments/assets/719cdf35-72ea-41a4-a0af-bb496a99ccef)
+![IMAGE 2024-12-16 13:47:19](https://github.com/user-attachments/assets/90087d4b-cc66-47cd-a0f1-55416d3200e4)
